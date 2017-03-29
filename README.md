@@ -1,2 +1,6 @@
 # hello-world
-just another repostory
+
+ja sam ja 
+
+ne mogu biti ti 
+ti ne mozes biti ja 
